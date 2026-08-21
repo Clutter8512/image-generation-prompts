@@ -1,0 +1,1 @@
+SUBJECT IDENTITY: Use the woman in the attached reference image as the subject. Preserve her recognizable facial identity, hair, apparent age, body proportions, and other defining visual characteristics. The reference establishes who she is, not her pose, expression, camera angle, composition, or background.
